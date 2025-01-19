@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @TravisBoone6277
-- 👀 I’m interested in fishina cutting hair
+- 👀 I’m interested in fishing cutting hair
 - 🌱 I’m currently learning cyber security
 - 💞️ I’m looking to collaborate on making my first million dollars
 - 📫 How to reach me is via email- tdboone@my.waketech.edu
